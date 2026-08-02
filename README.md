@@ -1,11 +1,17 @@
 # Hi there 👋
 
 ## short intro;
+
 I go by Himbug and Eru online, but you can call me whatever.
+
 I am 22 going on 23 this month.
+
 she/her pronouns, cisfem and bi
+
 not taken but definitely not lookin
+
 in a lot of the more popular fandoms, like Undertale and TADC
+
 SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
