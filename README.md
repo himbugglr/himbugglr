@@ -18,6 +18,6 @@ I tend to be annoying /joking
 
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
 ### If all you want is my socials, though, you might prefer my [Linktree](https://linktr.ee/himbug), even if it's not near as pretty.
-### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://linktr.ee/himbug).
+### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
 
 Anywho, thanks for visiting! Have a good day!
