@@ -21,10 +21,11 @@ I tend to be annoying /joking
 ### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
 
 Anywho, thanks for visiting! Have a good day!
+
 ⠀
+
 ⠀
+
 ⠀
-⠀
-⠀
-⠀
+
 ps; I finally figured out how to disable the copilot integrations, so whoever is following me won't have to see me complaining in the commits anymore lol
