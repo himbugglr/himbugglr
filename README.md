@@ -16,6 +16,8 @@ SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
 
+Currently trying to get eyes on this new tut (also linked on my Straw)- Extra detailed anime eyes https://www.reddit.com/r/PonyTown/s/TLV8YL1Dnn
+
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
 ### If all you want is my socials, though, you might prefer my [Linktree](https://linktr.ee/himbug), even if it's not near as pretty.
 ### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
