@@ -23,7 +23,7 @@ If you're curious how I made anything, you'll find it here- or you can ask (also
 Ig this spot is just gonna be a "new horse post highlight" idk
 
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
-### If all you want is my socials, though, you might prefer my [Linktree](https://linktr.ee/himbug), even if it's not near as pretty.
+### If all you want is my socials, though, you might prefer my ["Linktree"](https://himbug.straw.page/link-in-bio-tool), even if it's not near as pretty.
 ### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
 
 Anywho, thanks for visiting! Have a good day!
