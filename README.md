@@ -16,11 +16,9 @@ SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
 
-Currently slowly but surely updating this new part of my Strawpage until it's got a lot of my own Tutorials! 
+Currently trying to get more answers on [this poll](https://www.reddit.com/r/PonyTown/s/ipBE1x8cO6),, though I suspect my new tut post may have nerfed it so,,
 
-If you're curious how I made anything, you'll find it here- or you can ask (also linked on my Straw)- https://himbug.straw.page/twotoriels
-
-Ig this spot is just gonna be a "new horse post highlight" idk
+### If you're curious how I made anything, you'll find it here- or you can ask (also linked on my Straw)- [the Tutorial Page] (https://himbug.straw.page/twotoriels)
 
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
 ### If all you want is my socials, though, you might prefer my ["Linktree"](https://himbug.straw.page/link-in-bio-tool), even if it's not near as pretty.
