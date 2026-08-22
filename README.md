@@ -16,7 +16,7 @@ SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
 
-Currently trying to get more answers on [this poll](https://www.reddit.com/r/Fez_Squad/s/FXyWLHprl0),, though I suspect my new tut post may have nerfed it so,,
+Currently trying to get more answers on [this poll](https://www.reddit.com/r/Fez_Squad/s/1IjnTjYjef),,
 
 ### If you're curious how I made anything, you'll find it here- or you can ask (also linked on my Straw)- [the Tutorial Page](https://himbug.straw.page/twotoriels)
 
