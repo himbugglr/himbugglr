@@ -23,7 +23,7 @@ Currently trying to get more answers on [this post](https://www.reddit.com/r/Fez
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
 ### If all you want is my socials, though, you might prefer my ["Linktree"](https://himbug.straw.page/link-in-bio-tool), even if it's not near as pretty.
 ### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
-### Also, if you're looking for some alternatives to Straw's icons, I have this [collection on Cowsites](https://www.reddit.com/r/Fez_Squad/s/J6dlC6KZEz) that you may appreciate.
+### Also, if you're looking for some alternatives to Straw's icons, I have this [collection on Cowsites](https://himbug.cowsite.net/) that you may appreciate.
 
 Anywho, thanks for visiting! Have a good day!
 
