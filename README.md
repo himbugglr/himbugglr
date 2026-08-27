@@ -16,13 +16,14 @@ SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
 
-Currently trying to get more answers on [this poll](https://www.reddit.com/r/Fez_Squad/s/1IjnTjYjef),,
+Currently trying to get more answers on [this post](https://www.reddit.com/r/Fez_Squad/s/J6dlC6KZEz),,
 
 ### If you're curious how I made anything, you'll find it here- or you can ask (also linked on my Straw)- [the Tutorial Page](https://himbug.straw.page/twotoriels)
 
 ### More indepth info would be on my [Strawpage](https://himbug.straw.page/). I have a DNI, but it's primarily just the obvious.
 ### If all you want is my socials, though, you might prefer my ["Linktree"](https://himbug.straw.page/link-in-bio-tool), even if it's not near as pretty.
 ### If you'd prefer to just leave a message and don't want to be anonymous, there's also my [Atabook](https://himbug.atabook.org).
+And if you're looking for some alternatives to Straw's icons, I have this [collection on Cowsites](https://www.reddit.com/r/Fez_Squad/s/J6dlC6KZEz) that you may appreciate.
 
 Anywho, thanks for visiting! Have a good day!
 
