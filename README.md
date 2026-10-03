@@ -2,7 +2,7 @@
 
 ## short intro;
 
-I go by Himbug and Eru online, but you can call me whatever.
+I go by Himbug online, but you can call me whatever.
 
 I am 22 going on 23 this month.
 
@@ -27,7 +27,7 @@ Currently trying to get more answers on [this poll](https://forms.gle/uZL1qQpVyT
 
 Anywho, thanks for visiting! Have a good day!
 
-⠀
+i thought ""Eru"" was gibberish but it apparently means god?? not using that nickname again.
 
 ⠀
 
