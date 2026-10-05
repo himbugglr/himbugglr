@@ -4,7 +4,7 @@
 
 I go by Himbug online, but you can call me whatever.
 
-I am 22 going on 23 this month.
+I am 23 (idk why I haven't fixed this part)
 
 she/her pronouns, cisfem and bi
 
@@ -16,7 +16,7 @@ SLOWLY easing myself into Vocaloid
 
 I tend to be annoying /joking
 
-Currently trying to get more answers on [this poll](https://forms.gle/uZL1qQpVyTCvbEcP7),,
+Making what I call [the Fez Collection](https://himbug.straw.page/fezcollection) for the sake of being able to delete Fezes and still show them off (as well as celebrating making all in game Fez emojis as cosplays!) I think it looks funky ✨
 
 ### If you're curious how I made anything, you'll find it here- or you can ask (also linked on my Straw)- [the Tutorial Page](https://himbug.straw.page/twotoriels)
 
